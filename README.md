@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NicolePierdica
+- 👀 I’m interested in everything tha can be learned by doing
+- 🌱 I’m currently learning front end web developing
+- 💞️ I’m looking to collaborate on web developing
+- 📫 How to reach me hardozone@gmail.com - asfissia on Ig
